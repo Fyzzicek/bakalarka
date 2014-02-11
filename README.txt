@@ -1,1 +1,0 @@
-Repozitáø bakaláøské práce k LS 2014
