@@ -1,0 +1,1 @@
+README pro bakaláøskou práci v LS 2014. Jiøí Kozumplík
